@@ -9,8 +9,8 @@ Com sólida experiência em **Escritório de Contabilidade**, atuei nos setores 
 
 ### 🏗️ Projetos em Foco:
 
-1. **Auditoria Estratégica  **
-2. **Startup: Solucionando Dores de Gestão** 🏗️
+
+ **Startup: Solucionando Dores de Gestão** 🏗️
 
 ### 📚 Educação & Compliance
 - **ADM (Graduada):** Visão de processos e viabilidade de negócio.
