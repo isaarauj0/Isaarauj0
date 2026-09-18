@@ -9,8 +9,7 @@ Com sólida experiência em **Escritório de Contabilidade**, atuei nos setores 
 
 ### 🏗️ Projetos em Foco:
 
-1. **Auditoria Estratégica: Comex & Games** 🚢🎮
-
+1. **Auditoria Estratégica  **
 2. **Startup: Solucionando Dores de Gestão** 🏗️
 
 ### 📚 Educação & Compliance
